@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Alexander-Shevchenko
+- 👀 I’m interested in ⌨, ⚽, 🎸🤘
+- 🌱 I’m currently learning Java & Web
+- 📫 How to reach me: alex(dot)thunder(another dot)ua🐌gmail.com
